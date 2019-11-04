@@ -1,1 +1,1 @@
-# enkabeautybali.github.io
+# enkabeauty.github.io
